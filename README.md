@@ -1,0 +1,5 @@
+- hello! I'm Ichiro, but can call me Halo too.
+- i use they/them and he/him pronouns.
+- i'm brazilian, but i speak english and a little spanish
+- i like kny, object show and horror games.
+- I'm a small artist, I draw both traditional and digitally.
